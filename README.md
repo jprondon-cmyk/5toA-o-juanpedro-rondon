@@ -1,3 +1,5 @@
 # 5toA-o-juanpedro-rondon
 Pensamiento computacional
-clase del 24/09 creacion del github
+cuenta de tincercad
+correo: jprondon@icloud.com
+clave: Jp0504
